@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CLOUDYURI9
 - 👀 I’m interested in Games Fps
-- 🌱 I’m currently learning Program
+- 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on solo
 - 📫 How to reach me ...
 - 😄 Pronouns: Homem
